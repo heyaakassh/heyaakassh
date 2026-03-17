@@ -1,5 +1,5 @@
 # About Me:
-A Sophomore just diving in to the concepts of Machine Learning | AI & Data Science Student | Learning Machine Learning & Python | DSA | Deep Learning | Building and learning every day 🚀
+A Sophomore just diving in to the concepts of Machine Learning | AI & Data Science Student | Python | DSA | Deep Learning | Building and learning every day 🚀
 
 
 ## 🌐 Socials:
